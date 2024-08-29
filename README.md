@@ -9,3 +9,5 @@ Blue
 Purple 
 
 All of this colours you can find in a rainbow. The rainbow is very beautyful. 
+
+Your Poem is very bad.
